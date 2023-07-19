@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Gadelha 😁
+## Bem-vindo(a) ao perfil do JessicaGadelha 😁
 
  <div>
    <a href="https://github.com/gadelha">
